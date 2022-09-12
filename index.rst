@@ -23,6 +23,9 @@ thời xưa số 9 được coi là con số đại diện của Vua Chúa. Ngai
 Hơn thế nữa, số 9 còn mang ý nghĩa của sự hạnh phúc, an lành mà ai sống trên cõi đời đều mong muốn. Nếu bạn có được sim đuôi 9999 thì cuộc sống của bạn sẽ an yên và hạnh phúc hơn. Đó mới là thứ làm cuộc sống con người có thêm nhiều ý nghĩa.
 
 Website	https://simdaiphat.vn/
+
 Google map: 	https://goo.gl/maps/ddT44EzJx7FCGEM26
+
 Facebook: 	https://www.facebook.com/khosimdaiphat/
+
 Twitter: 	https://twitter.com/simdaiphat
